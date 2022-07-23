@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Marshell Wu
+- 👀 I’m interested in Enterpreneurship
